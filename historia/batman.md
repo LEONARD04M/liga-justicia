@@ -1,0 +1,2 @@
+## Batman
+La historia de Batman comienza cuando Bruce Wayne, un niño, presencia el asesinato de sus padres. Afectado por la tragedia, jura dedicar su vida a combatir el crimen en Ciudad Gótica. Para ello, se entrena física e intelectualmente, utiliza su enorme fortuna para crear tecnología de vanguardia y adopta la imagen de un murciélago para inspirar miedo en los corazones de los criminales, convirtiéndose así en el Caballero Oscuro
